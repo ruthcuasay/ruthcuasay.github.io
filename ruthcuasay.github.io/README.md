@@ -1,1 +1,0 @@
-# ruthcuasay.github.io
